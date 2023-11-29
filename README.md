@@ -1,5 +1,5 @@
 SELAIX: Search Engine Learning Artificial Intelligence Xperience
-SELAIX Logo
+
 Welcome to SELAIX, where innovation meets intelligence in the realm of search engines. Our brand identity is rooted in the acronym SELAIX, which stands for "Search Engine Learning Artificial Intelligence Xperience." This name isn't just a collection of words; it represents our commitment to revolutionizing the search experience.
 
 Brand Identity
